@@ -1,5 +1,7 @@
-[GitHub](https://github.com/flyingsonu122)
-[Twitter](https://twitter.com/sonukumarkush12)
+[GitHub](https://github.com/iamsonukushwaha)
+
+[Twitter](https://twitter.com/iamsonukushwaha)
+
 [Blogger](https://singlebucks.blogspot.com/)
-[Medium](https://medium.com/@sonukumarkushwaha)
+
 [LinkedIn](https://www.linkedin.com/in/sonukumarkushwaha/)
